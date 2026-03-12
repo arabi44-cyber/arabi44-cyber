@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @arabi44-cyber
 - 👀 I’m interested in Cyber Security 
-- 🌱 I’m currently Bachelor of computer Science and Information Technology
+- 🌱 I’m currently studying Bachelor of computer Science and Information Technology
 - 💞️ I’m looking for internship on Cyber Security Related Field.
-- 📫 How to reach me arabiofficial11@gmail.com
+- 📫 How to reach me arabiofficial107@gmail.com
 - 😄 Pronouns: Rabi, Beast ...
 - ⚡ Fun fact: ...
 
