@@ -3,7 +3,7 @@
 - 🌱 I’m currently studying Bachelor of computer Science and Information Technology
 - 💞️ I’m looking for internship on Cyber Security Related Field.
 - 📫 How to reach me arabiofficial107@gmail.com
-- 😄 Pronouns: Rabi, Beast ...
+- 😄 Pronouns: Rabi, Arabi 
 - ⚡ Fun fact: ...
 
 <!---
